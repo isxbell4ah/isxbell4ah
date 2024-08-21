@@ -1,16 +1,14 @@
-## Hi there 👋
+##ola! ^O^ 🖤
 
-<!--
-**isxbell4ah/isxbell4ah** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Aqui está algumas coisas sobre minha pessoa
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Meu nome é Isabella
+- tenho 15 anos e faço Desing digital (artes online) moro em uma cidade  no interior de são paulo,
+- falo portugues brasileiro mas sou boa de inlges também
+- 
+- Caso qesteja interessado aqui está meu instagram
+- @isxbell4ah
+- 
+- 
+- 
+- 
