@@ -7,8 +7,5 @@ Aqui está algumas coisas sobre minha pessoa
 - falo portugues brasileiro mas sou boa de inlges também
 - 
 - Caso qesteja interessado aqui está meu instagram
-- @isxbell4ah
-- 
-- 
-- 
+- @isxbell4ah 🇧🇷/🇺🇸
 - 
